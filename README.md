@@ -2,3 +2,4 @@
 Informações retirados do site Tradingview 
 https://br.tradingview.com/markets/stocks-brazilia/market-movers-active/
 
+screen.JPG
